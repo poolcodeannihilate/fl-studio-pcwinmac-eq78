@@ -1,4 +1,4 @@
-# 
+# Novo FL Studio fluxo de trabalho para Mac OS | Profissional FL Studio fluxo de trabalho para PC Windows. Com pintura vetorial e edição multicâmera — otimizado para máximo desempenho em cada plataforma.
 
 
 
